@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NishithaReddyK
+- 👀 I’m interested in Artificial Intelligence and Machine Learning
+- 🌱 I’m currently learning B Tech at VIT-AP
+- 📫 Reach me at nishikarnati@gmail.com
+- ⚡ Sometimes you will never know the value of a moment until it becomes a memory.
